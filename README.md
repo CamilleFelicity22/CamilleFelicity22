@@ -1,8 +1,4 @@
 - 👋 Hi, I’m @CamilleFelicity22
-- 👀 I’m interested in figure skating 
-- 🌱 I’m currently learning computer science 
-- 💞️ I’m looking to collaborate on whatever is fun
-- 📫 How to reach me @felicitycao2244@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: remain to be explored 
 
